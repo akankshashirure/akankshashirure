@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @akankshashirure
 - 👀 I’m interested in coding.
-- 🌱 I’m currently learning in 2nd year engineering.
+- 🌱 I’m currently pursuing bachlores degree in Information Technology at Sinhgad Institute of Technology and Science, Narhe, pune.
 - 
 - 
 
